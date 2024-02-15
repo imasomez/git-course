@@ -1,2 +1,0 @@
-# masome zarei
-## loredkjshfkjshdfkjhakhdkahkdshkhakh 
